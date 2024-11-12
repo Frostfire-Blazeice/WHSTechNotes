@@ -8,4 +8,4 @@ I have accidentaly shared something personal. It was a picture that held my adre
 I heard about a man who got upsetti over abuse claims. I was all like, well is it true or cap? 
 Eventually he did come out and said it was true. Then I was all like HAH I knew it. 
 
-    If he had used a computer, h might not have resorted to abuse. Or if he hadn't abused, maybe he would still be happy. Maybe even if they had caught him earlier. But these are al just speculation.
+If he had used a computer, h might not have resorted to abuse. Or if he hadn't abused, maybe he would still be happy. Maybe even if they had caught him earlier. But these are al just speculation.
