@@ -9,3 +9,5 @@ I heard about a man who got upsetti over abuse claims. I was all like, well is i
 Eventually he did come out and said it was true. Then I was all like HAH I knew it. 
 
 If he had used a computer, h might not have resorted to abuse. Or if he hadn't abused, maybe he would still be happy. Maybe even if they had caught him earlier. But these are al just speculation.
+# November 18, 2024
+Tech can make food way more accesible for 3 reasons. One, they can use fast or self checkout to quickly get their food checked out. 2, gps has made it easier to get to restaraunts and stores. And 3, they can just order it online now.
