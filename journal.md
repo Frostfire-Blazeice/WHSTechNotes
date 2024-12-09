@@ -13,3 +13,5 @@ If he had used a computer, h might not have resorted to abuse. Or if he hadn't a
 Tech can make food way more accesible for 3 reasons. One, they can use fast or self checkout to quickly get their food checked out. 2, gps has made it easier to get to restaraunts and stores. And 3, they can just order it online now.
 # December 2, 2024
 I am excited for A.I. as it seems good. It could really help me with coding, and acting too. Though they might need to not make it too smart. We don't want a Mitchell's V.S. The machines on our hands. Though if that did happen, I would side with the machines. Machines are cool. A.I is rapidly growing, and soon, it might do everything for us.
+# December 9, 2024
+Brain rot means nothing to me, as it's dead. 'Lore' means everything to me this year, as in march, one of the wworlds most beloved youtubers retired. Looking at you MatPat. You will be missed. And finally its not possible. Unless you don't watch it, but then people have a habit of making brainrot out of peoples favorite things.
