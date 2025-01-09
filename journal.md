@@ -17,3 +17,5 @@ I am excited for A.I. as it seems good. It could really help me with coding, and
 Brain rot means nothing to me, as it's dead. 'Lore' means everything to me this year, as in march, one of the worlds most beloved youtubers retired. Looking at you MatPat. You will be missed. And finally its not possible. Unless you don't watch it, but then people have a habit of making brainrot out of peoples favorite things. Matpat is an inspiration to everyone around the world who has seen him, from game to food to style to film, he made theorys on it all. His legacy, built on the support of 13 million people, will never be lived up to by anyone. R.I.P.
 # December 16, 2024
 Yes
+# January 8, 2025
+I enjoyed the friends I made, and am looking to plaay more games, with a java certification.
