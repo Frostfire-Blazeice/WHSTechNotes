@@ -21,3 +21,5 @@ Yes
 I enjoyed the friends I made, and am looking to plaay more games, with a java certification.
 # January 13, 2025
 I think that its bad. I want to go into coding. If I get replaced, I won't havve a job. That would be bad.
+# January 22, 2025
+I dont think it will affect anything
