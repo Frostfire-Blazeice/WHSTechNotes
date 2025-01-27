@@ -27,3 +27,6 @@ I dont think it will affect anything
 |        |   Car   | Mistake |
 |--------|---------|---------|
 |Harrison| Forester| Oil cap |
+|Jimmy   |Honda C  |Gas hole |
+| Kayla  | Sierra  |Wrong pr |
+| Bart   |  Toyota |Stains   |
