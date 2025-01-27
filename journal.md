@@ -25,5 +25,5 @@ I think that its bad. I want to go into coding. If I get replaced, I won't havve
 I dont think it will affect anything
 # January 27, 2025
 |        |   Car   | Mistake |
-|----------------------------|
+|--------|---------|---------|
 |Harrison| Forester| Oil cap |
