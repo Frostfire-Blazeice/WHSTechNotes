@@ -30,3 +30,5 @@ I dont think it will affect anything
 |Jimmy   |Honda C  |Gas hole |
 | Kayla  | Sierra  |Wrong pr |
 | Bart   |  Toyota |Stains   |
+# February 3, 2025
+By using ai to path the routes, we can prevent things like this.
