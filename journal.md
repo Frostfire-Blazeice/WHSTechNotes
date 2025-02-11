@@ -32,3 +32,11 @@ I dont think it will affect anything
 | Bart   |  Toyota |Stains   |
 # February 3, 2025
 By using ai to path the routes, we can prevent things like this.
+# February 11, 2025
+| Shape  |  Color  |  Number |
+|--------|---------|---------|
+| Circle |  Green  |    7    |
+|Square  | Yellow  |    5    |
+|Hexagon |  Brown  |    6    |
+|Triangle|  Purple |    4    |
+| Octogon|   Red   |    3    |
