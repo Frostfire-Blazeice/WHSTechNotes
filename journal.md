@@ -40,5 +40,9 @@ By using ai to path the routes, we can prevent things like this.
 |Hexagon |  Brown  |    6    |
 |Triangle|  Purple |    4    |
 | Octogon|   Red   |    3    |
-# February 24, 2025
+# February 18, 2025
 I learned about death from my dad. I didn't really find it interesting.
+# February 24, 2025
+  They can commonly lead to misconceptions on one side of the conversation, especially if elders aren't understanding. This is really bad for therapists and counselers. Maybe there could be a class for those people. They could learn the slang and keep up with the times.
+
+  I do think there is some slang that should just be left as is. Types of slang like skibidi and rizz may not be useful to the older audience. This is why there are people who hate on this slang. This has been repeated time and time again.
