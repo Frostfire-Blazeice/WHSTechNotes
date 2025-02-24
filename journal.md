@@ -40,5 +40,5 @@ By using ai to path the routes, we can prevent things like this.
 |Hexagon |  Brown  |    6    |
 |Triangle|  Purple |    4    |
 | Octogon|   Red   |    3    |
-# February 18, 2025
+# February 24, 2025
 I learned about death from my dad. I didn't really find it interesting.
