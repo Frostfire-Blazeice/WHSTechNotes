@@ -46,6 +46,14 @@ I learned about death from my dad. I didn't really find it interesting.
   They can commonly lead to misconceptions on one side of the conversation, especially if elders aren't understanding. This is really bad for therapists and counselers. Maybe there could be a class for those people. They could learn the slang and keep up with the times.
 
   I do think there is some slang that should just be left as is. Types of slang like skibidi and rizz may not be useful to the older audience. This is why there are people who hate on this slang. This has been repeated time and time again.
+# March 3rd, 2025
+| Name    | Power | Challenge |
+| :------ | :---- | :-------- |
+| Zara    |       |           |
+| Aether  |       |           |
+| Thorne  |       |           |
+| Silver  |       |           |
+| Tangier |       |           |
 # March 17, 2025
 I played on my switch a lot. It was very fun. I played a lot of minecraft with my friends. I also played a lot of breath of the wild.
 
