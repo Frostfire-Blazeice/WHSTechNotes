@@ -58,3 +58,7 @@ I learned about death from my dad. I didn't really find it interesting.
 I played on my switch a lot. It was very fun. I played a lot of minecraft with my friends. I also played a lot of breath of the wild.
 
 Along with that, I used my Ipad a lot. I used it to zoom so I could play DND with my friends. I also used it for DNDbeyond. I made custom stuff on there.
+
+
+
+I did the google logo one, but couldnt do the survey
