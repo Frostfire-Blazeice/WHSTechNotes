@@ -65,4 +65,4 @@ I did the google logo one, but couldnt do the survey
 # March 24th 2025
   I dont really care about how it affects it. It doesnt really matter to me. I dont even know how it would affet it. If I did I would write about it.
  
-  If it doesnt affect me, which it doesn then I dont care. I think that its better left unsaid. These are just excuses why I  dont know it.
+  If it doesnt affect me, which if it doesn't then I dont care. I think that its better left unsaid. These are just excuses why I  dont know it.
