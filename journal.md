@@ -66,3 +66,6 @@ I did the google logo one, but couldnt do the survey
   I dont really care about how it affects it. It doesnt really matter to me. I dont even know how it would affet it. If I did I would write about it.
  
   If it doesnt affect me, which if it doesn't then I dont care. I think that its better left unsaid. These are just excuses why I  dont know it.
+ # March 31st, 2025
+  1 Good hbu
+  2 Nothing
