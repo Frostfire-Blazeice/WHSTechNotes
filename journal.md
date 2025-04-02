@@ -68,4 +68,6 @@ I did the google logo one, but couldnt do the survey
   If it doesnt affect me, which if it doesn't then I dont care. I think that its better left unsaid. These are just excuses why I  dont know it.
  # March 31st, 2025
   1 Good hbu
+  # April 2, 2025
+  Google logo
   2 Nothing
