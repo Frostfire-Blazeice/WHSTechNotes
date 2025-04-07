@@ -64,6 +64,8 @@ Along with that, I used my Ipad a lot. I used it to zoom so I could play DND wit
 I did the google logo one, but couldnt do the survey
 # March 24th, 2025
   I dont really care about how it affects it. It doesnt really matter to me. I dont even know how it would affet it. If I did I would write about it.
+
+
  
   If it doesnt affect me, which if it doesn't then I dont care. I think that its better left unsaid. These are just excuses why I  dont know it.
  # March 31st, 2025
@@ -71,3 +73,6 @@ I did the google logo one, but couldnt do the survey
   # April 2, 2025
   Google logo
   2 Nothing
+# April 7th, 2025
+  I dont think it'll help. It doesn't seem like it willl. If students don't listen to teachers, why would they listen to A.I.?
+    Me personally I despise A.I.. I wouldn't use this at all. There are no good features about A.I.. And I am talking about the A.I. that is trying to sound humanoid. This is all in jest though. I don't hate it.
