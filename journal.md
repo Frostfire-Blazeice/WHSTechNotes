@@ -74,5 +74,9 @@ I did the google logo one, but couldnt do the survey
   Google logo
   2 Nothing
 # April 7th, 2025
-  I dont think it'll help. It doesn't seem like it willl. If students don't listen to teachers, why would they listen to A.I.?
+  I dont think it'll help. It doesn't seem like it will. If students don't listen to teachers, why would they listen to A.I.?
     Me personally I despise A.I.. I wouldn't use this at all. There are no good features about A.I.. And I am talking about the A.I. that is trying to sound humanoid. This is all in jest though. I don't hate it.
+# April 14th, 2025
+  I believe it would be detrimental, as they won't be able to watch youtube. By this I mean look stuff up, like tutorials. If they couldn't do this, they wouldn't be able to watch stuff like edpuzzles. That is why I believe it would be detrimental.
+
+  It would, however lead to many more fights, with nowhere to watch stuff. Don't ask for the correlation, I don't understand it either, I just know it happens. And it's justified ,too. If this happened to me, I would crash out.
