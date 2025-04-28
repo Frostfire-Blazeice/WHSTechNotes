@@ -80,3 +80,10 @@ I did the google logo one, but couldnt do the survey
   I believe it would be detrimental, as they won't be able to watch youtube. By this I mean look stuff up, like tutorials. If they couldn't do this, they wouldn't be able to watch stuff like edpuzzles. That is why I believe it would be detrimental.
 
   It would, however lead to many more fights, with nowhere to watch stuff. Don't ask for the correlation, I don't understand it either, I just know it happens. And it's justified ,too. If this happened to me, I would crash out.
+
+# April 28th 2025
+| Name     | Flavor | Occasion | Price |
+| :------- | :----- | :------- | :---- |
+| Sally    |   Chocolate     |      Graduation    |   $35.00    | 
+| Michael  |    Vanilla    |     Farewell Party    |    $37.00   | 
+| Emma     |    Carrot    |    Birthday      |   $39.00    | 
