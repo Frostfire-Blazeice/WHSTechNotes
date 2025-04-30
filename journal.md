@@ -81,7 +81,7 @@ I did the google logo one, but couldnt do the survey
 
   It would, however lead to many more fights, with nowhere to watch stuff. Don't ask for the correlation, I don't understand it either, I just know it happens. And it's justified ,too. If this happened to me, I would crash out.
 
-# April 28th 2025
+# April 28th, 2025
 | Name     | Flavor | Occasion | Price |
 | :------- | :----- | :------- | :---- |
 | Sally    |   Chocolate     |      Graduation    |   $35.00    | 
