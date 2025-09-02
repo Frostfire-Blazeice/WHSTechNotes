@@ -87,3 +87,6 @@ I did the google logo one, but couldnt do the survey
 | Sally    |   Chocolate     |      Graduation    |   $35.00    | 
 | Michael  |    Vanilla    |     Farewell Party    |    $37.00   | 
 | Emma     |    Carrot    |    Birthday      |   $39.00    | 
+
+# September 2nd, 2025
+I am going to be talking about the phone law. I feel as though it is unneccessary. It was removed to make students more roductive and less distracted. But from what I have observed, most are failing and are still distracted. Therefore, I believe this law too be unneccessary.
