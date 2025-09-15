@@ -90,3 +90,6 @@ I did the google logo one, but couldnt do the survey
 
 # September 2nd, 2025
 I am going to be talking about the phone law. I feel as though it is unneccessary. It was removed to make students more roductive and less distracted. But from what I have observed, most are failing and are still distracted. Therefore, I believe this law too be unneccessary.
+
+# September 15th, 2025
+I beleive that AI caan be used to solve the AI problem. Think about that for a minuite. If we hire AI to get rid of AI, then they will cancel each other out. Or they will end up turning against us. Therefore I believe that AI can solve the AI problem. 
