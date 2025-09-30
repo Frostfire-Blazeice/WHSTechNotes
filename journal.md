@@ -93,3 +93,11 @@ I am going to be talking about the phone law. I feel as though it is unneccessar
 
 # September 15th, 2025
 I beleive that AI caan be used to solve the AI problem. Think about that for a minuite. If we hire AI to get rid of AI, then they will cancel each other out. Or they will end up turning against us. Therefore I believe that AI can solve the AI problem. 
+
+# September 30th, 2025
+Once upon a time, there was a guy who said six seven for a skit. 
+This somehow blew up and caused a new slang term to be added to the gen z and alpha generation.
+I don't see the meaning, but apparently, some others do. 
+They say that it is a funny number.
+But all in all, its just a number.
+So six seven is now funny?
