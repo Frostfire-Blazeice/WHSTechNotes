@@ -101,3 +101,6 @@ I don't see the meaning, but apparently, some others do.
 They say that it is a funny number.
 But all in all, its just a number.
 So six seven is now funny?
+
+# October 6th, 2025
+I believe that AI shold still be banned. I believe that games should be banned too. Math games included. Phones shold be unbanned. This is what I believe.
