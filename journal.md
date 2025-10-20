@@ -104,3 +104,11 @@ So six seven is now funny?
 
 # October 6th, 2025
 I believe that AI shold still be banned. I believe that games should be banned too. Math games included. Phones shold be unbanned. This is what I believe.
+
+# October 20th, 2025
+
+| Name     | Class | Seat |
+| :------- | :---- | :--- |
+| Franklin |  Second     |  91A    |
+| Hardeep  |    third   |  61F    |
+| Marla    |    First   |   35B   |
