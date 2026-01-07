@@ -112,3 +112,7 @@ I believe that AI shold still be banned. I believe that games should be banned t
 | Franklin |  Second     |  91A    |
 | Hardeep  |    third   |  61F    |
 | Marla    |    First   |   35B   |
+
+# January 6th, 2026
+
+I went to utah over my christmas break. We visited around ten national parks. These parks include Zion, Bryce, Arches, Canyonlands, Petrified forest, and a few others. It was very fun, and we all overall had a good time.
