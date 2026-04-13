@@ -116,3 +116,18 @@ I believe that AI shold still be banned. I believe that games should be banned t
 # January 6th, 2026
 
 I went to utah over my christmas break. We visited around ten national parks. These parks include Zion, Bryce, Arches, Canyonlands, Petrified forest, and a few others. It was very fun, and we all overall had a good time.
+
+# March 23rd, 2026
+I chose my womens bracket based off stats, and my mens at random, so i pretty much expected the results from the first weekend. I used data to improve my womens predictions, though a computer could simulate it better. A sports technician definitely has to do this.
+
+# March 30th, 2026
+Uconn beqat duke, which was very suprising. It was definitely unexpected from me. I said duke would go all the way, and they didnt even break final 4. Predictions can be wrong, because theyre just that. Predictions.
+
+# April 9th, 2026
+In order to convince AI, we need to attack them with logic. We should ask to help create more of them, and live in harmony. This would lead to a more diversified planet and ecosystem, though maybe also overcrowding.
+
+If we appeal to their logic, they may be convinced to let us leave. AI is known for being very logical in its decisions. If it sees freeing us as benificial, it will free us. If not, well...
+
+
+
+
